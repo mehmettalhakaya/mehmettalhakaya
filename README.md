@@ -25,7 +25,7 @@
 
 ## 📺 YouTube Kanalım
 Yazılım, teknoloji ve öğrendiklerimi paylaştığım YouTube kanalım:  
-**👉 @MEHMETTALHAKAYA-SE 👈**
+**👉 https://www.youtube.com/@MEHMETTALHAKAYA-SE 👈**
 
 ---
 
